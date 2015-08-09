@@ -1,5 +1,5 @@
-11/11/14 - 10:38:47 P.M.
-scott@newgeo.com • @cometbus
+11/11/14 - 10:38:47 P.M.  
+Scott Haneda [@scotthaneda](https://twitter.com/scotthaneda)
 
 # Archive iMessages
 
